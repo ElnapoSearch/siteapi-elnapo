@@ -5,7 +5,7 @@
 <p align="center">
 
 <div align="center">
-<a href="https://chat.whatsapp.com/C4sfPH3X7mjJQrXxMMd4WJ"> 𝙂𝙧𝙪𝙥𝙤 𝙙𝙚 𝙎𝙪𝙥𝙤𝙧𝙩𝙚
+<a href="https://chat.whatsapp.com/C4sfPH3X7mjJQrXxMMd4WJ"> 𝙂𝙧𝙪𝙥𝙤 𝙙𝙚 𝙎𝙪𝙥𝙤𝙧𝙩𝙚 </a>
 
 ### Olaaa 👋🏻
 
